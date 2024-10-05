@@ -32,3 +32,7 @@ Disclaimer :
 
 Using this tool for unauthorized activities is illegal. Use it only for educational purposes or to test your own systems with permission.
 
+Created with passion by HACK@AHMED
+- Youtube channel : HACK@AHMED
+- Instagram : Ahmed NG
+
