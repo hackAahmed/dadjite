@@ -34,5 +34,5 @@ Using this tool for unauthorized activities is illegal. Use it only for educatio
 
 Created with passion by HACK@AHMED
 - Youtube channel : HACK@AHMED
-- Instagram : Ahmed NG
+- Instagram : hackaAhmed
 
